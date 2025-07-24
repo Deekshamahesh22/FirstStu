@@ -1,1 +1,1 @@
-# FirstStu
+# FirstStudying
